@@ -1,56 +1,48 @@
-Reformas Andorra 20 – Renovaciones profesionales en Andorra
-En Reformas Andorra 20 te ayudamos a transformar cualquier espacio con proyectos integrales o parciales, adaptados a tus necesidades, estilo y presupuesto.
+# Reformas Andorra 20 🛠️ | Expertos en Reformas Completas
 
-Disponemos de servicios especializados en diferentes áreas:
+En **[Reformas Andorra 20](https://reformasandorra20.com/)** ofrecemos soluciones de reforma adaptadas a tus necesidades. Ya sea para tu vivienda, negocio o comunidad de vecinos, te acompañamos desde el diseño hasta la entrega final.
 
-🏠 Reformas integrales
-Todo el proceso de reforma, desde diseño hasta acabados:
-Transforma tu hogar o negocio
+## 🚿 Reformas de Baños
 
-🍴 Reformas de cocina
-Diseño funcional, almacenamiento optimizado y estética renovada:
-Renueva tu cocina aquí
+Transformamos tu baño en un espacio moderno y funcional. Descubre nuestros servicios aquí:  
+➡️ [Reformas de baños en Andorra](https://reformasandorra20.com/reforma-bano/)
 
-🚿 Reformas de baño
-Modernización completa con materiales duraderos y confort:
-Descubre nuestras iniciativas en baño
+## 🍳 Reformas de Cocinas
 
-🌿 Reformas de terrazas
-Convierte tu terraza en un espacio útil y atractivo todo el año:
-Ver opciones disponibles
+Cocinas abiertas, modernas o rústicas: tú eliges el estilo, nosotros lo hacemos realidad.  
+➡️ [Reforma de cocinas en Andorra](https://reformasandorra20.com/reforma-cocina/)
 
-🏢 Reformas en comunidades
-Portales, accesibilidad y zonas comunes optimizadas para comunidades:
-Información detallada
+## 🏢 Reforma de Locales Comerciales
 
-🏬 Reformas de locales comerciales
-Diseño y refuerzo de marca para entornos comerciales:
-Reforma efectiva de locales
+Mejora tu negocio desde dentro con una reforma completa y profesional.  
+➡️ [Locales comerciales reformados con éxito](https://reformasandorra20.com/reforma-locales-comerciales/)
 
-🤝 Quiénes somos
-Somos un equipo profesional con larga trayectoria en Andorra.
-Conócenos mejor aquí
+## 🌇 Reformas de Terrazas
 
-📩 Contacto y presupuestos
-Solicita asesoramiento o presupuesto sin compromiso:
-Envíanos tu proyecto
+Aprovecha tu terraza todo el año con diseños funcionales y confortables.  
+➡️ [Diseños de terrazas a medida](https://reformasandorra20.com/reforma-terraza/)
 
-🔗 Más recursos y publicaciones externas
-Google Site – Reformas Andorra 20
+## 🧱 Reformas Integrales
 
-Artículo en Medium
+Nos encargamos de toda la obra. Un solo interlocutor, cero complicaciones.  
+➡️ [Reformas integrales en Andorra](https://reformasandorra20.com/reforma-integrales/)
 
-Publicación en Notion
+## 🏘️ Comunidades de Vecinos
 
-Blog en Blogger
+Soluciones eficientes para portales, escaleras y zonas comunes.  
+➡️ [Reforma en comunidades](https://reformasandorra20.com/reforma-comunidades/)
 
-Entrada en HackMD
+## 📍 Conócenos
 
-🌐 Sobre esta publicación GitHub (SEO local)
-Este README.md está pensado para reforzar el proyecto principal mediante plataformas con buena indexación como GitHub Pages. Ideal para:
+Más de 15 años de experiencia nos avalan.  
+➡️ [Quiénes somos](https://reformasandorra20.com/quienes-somos/)
 
-Generar diversidad de dominios vinculados a la web.
+## 📞 Contacto Directo
 
-Crear una landing sencilla para cada servicio desde repositorios GitHub independientes.
+Solicita tu presupuesto sin compromiso:  
+➡️ [Formulario de contacto](https://reformasandorra20.com/contacto/)
 
-Ser una capa extra de autoridad contextual para tu SEO local.
+---
+
+¿Estás buscando una empresa de reformas en Andorra que te garantice calidad, cumplimiento y diseño?  
+✅ **Reformas Andorra 20** es tu mejor elección.
